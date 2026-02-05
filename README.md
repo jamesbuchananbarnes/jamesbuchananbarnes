@@ -1,9 +1,5 @@
 <img width="736" height="414" alt="Untitled24_20260205172049" src="https://github.com/user-attachments/assets/8a7cacc9-4d18-4626-8107-7bef324e90a0" />
 
-<img width="300" height="300" alt="Untitled27_20260205173407" src="https://github.com/user-attachments/assets/8a9f5d11-6d02-4e64-83fe-f3b8480cae9e" />
-
-
-
 i love love love bucky barnes ![IMG_0337](https://github.com/user-attachments/assets/96b1aa4c-2a92-48db-9a3f-ee04eb15b743) 12.7.24
 
 
