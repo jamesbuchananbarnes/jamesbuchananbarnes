@@ -9,4 +9,6 @@ always free to c+h or just chat! don't be a stranger ♡
  [ata](https://cavaliers.atabook.org) ![IMG_0334](https://github.com/user-attachments/assets/ac5a6841-0ba4-4793-a8f4-19a10f3ee4cd) [straw](https://buckywoof.straw.page)
 
 
+![IMG_0335](https://github.com/user-attachments/assets/ec1f34b4-cf2e-4899-b1d2-262314ecb7b5) AC: @/sokodraws && @/crayonboxx_xx
+
 
