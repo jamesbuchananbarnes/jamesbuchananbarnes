@@ -1,14 +1,16 @@
-<img width="1280" height="77" alt="IMG_0300" src="https://github.com/user-attachments/assets/1082b3c7-e009-4457-8b16-20cbd5512d70" />
+<img width="736" height="414" alt="Untitled24_20260205172049" src="https://github.com/user-attachments/assets/8a7cacc9-4d18-4626-8107-7bef324e90a0" />
+
+<img width="300" height="300" alt="Untitled27_20260205173407" src="https://github.com/user-attachments/assets/8a9f5d11-6d02-4e64-83fe-f3b8480cae9e" />
 
 
-<img width="428" height="583" alt="IMG_0297" src="https://github.com/user-attachments/assets/fc97f0b1-cebc-456c-a0a6-f60ed39762a0" />
 
-i love love love bucky barnes ![IMG_0302](https://github.com/user-attachments/assets/45bfbfbc-0cbb-4d59-afd4-013e1a4664c1) 12.7.24
+i love love love bucky barnes ![IMG_0337](https://github.com/user-attachments/assets/96b1aa4c-2a92-48db-9a3f-ee04eb15b743) 12.7.24
+
 
 always free to c+h or just chat! don't be a stranger ♡
 
-[rentry](https://rentry.co/bostoncrusaders) ![IMG_0303](https://github.com/user-attachments/assets/4ea0ddaf-5a77-48b2-8bd8-5eab0672c5a5) [ata](https://cavaliers.atabook.org) ![IMG_0303](https://github.com/user-attachments/assets/83fc6d94-388a-47ba-9b45-cd008e554379)
- [straw](https://buckywoof.straw.page)
+[rentry](https://rentry.co/bostoncrusaders) ![IMG_0336](https://github.com/user-attachments/assets/6ffc1bbb-6fd2-4894-81a8-cbf12e107676)
+ [ata](https://cavaliers.atabook.org) ![IMG_0334](https://github.com/user-attachments/assets/ac5a6841-0ba4-4793-a8f4-19a10f3ee4cd) [straw](https://buckywoof.straw.page)
 
 
 
