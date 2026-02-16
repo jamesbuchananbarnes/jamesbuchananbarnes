@@ -13,3 +13,5 @@ i dunno what else to add but i am very friendly and pawesome
 ![IMG_0320](https://github.com/user-attachments/assets/d222fd64-6311-4308-b6b9-186db5e4daec)
 
 ![IMG_0379](https://github.com/user-attachments/assets/cdb1da76-7fc1-411d-8c8e-85c4e9968f46)
+
+[hector ayala] whispers: Legends never die || GLMM ANGST Chomp x Bucky
