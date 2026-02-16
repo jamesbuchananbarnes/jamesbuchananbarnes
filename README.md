@@ -1,7 +1,7 @@
 ![IMG_0380](https://github.com/user-attachments/assets/eb601602-39b9-4cd1-9214-167a94a9859c)
 
 
-Hallo im chomp i weally love bucky barnes that is my husband okey??? i love him very much :) im always happy to talk to other bucky fans hehe (just dont sexualize him alot :( thats kinda weird)
+Hallo im chomp i weally love bucky barnes that is my boyfriend okey??? i love him very much :) im always happy to talk to other bucky fans hehe (just dont sexualize him alot :( thats kinda weird)
 
 
 
