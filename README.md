@@ -1,17 +1,1 @@
-![IMG_0380](https://github.com/user-attachments/assets/eb601602-39b9-4cd1-9214-167a94a9859c)
-
-
-Hallo im chomp i weally love bucky barnes that is my boyfriend okey??? i love him very much :) im always happy to talk to other bucky fans hehe (just dont sexualize him alot :( thats kinda weird)
-
-
-
-c*h is always fine with me i love sitting with people Yay!! yay
-
-
-i dunno what else to add but i am very friendly and pawesome
-
-![IMG_0320](https://github.com/user-attachments/assets/d222fd64-6311-4308-b6b9-186db5e4daec)
-
-![IMG_0379](https://github.com/user-attachments/assets/cdb1da76-7fc1-411d-8c8e-85c4e9968f46)
-
-[hector ayala] whispers: Legends never die || GLMM ANGST Chomp x Bucky
+<img width="200" height="280" alt="IMG_0392" src="https://github.com/user-attachments/assets/8f33f3ca-21ea-4bf7-9fa7-93bc50c3751b" /> ![](https://komarev.com/ghpvc/?username=jamesbuchananbarnes&color=yellow&label=𑁍+new+heroes+𓈒&style=plastic)
