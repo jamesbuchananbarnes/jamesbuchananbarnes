@@ -13,3 +13,8 @@
 <img width="25" height="25" alt="image" src="https://github.com/user-attachments/assets/575385ac-2d4f-4fdf-8b6b-a0c370df8b85" />˳　Uhhh i dont have strict boundaries tbh i dont block alot unless im in a really Shitty mood so yah. .. just be nice and we'll get along probably (and obviously dont interact if u pro/darkship this is NOT  a safe space)
 
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/09a6a5a0-cf92-4a71-85de-a239c421744c" />˳　main fandoms ノ marvel ✙ DC (mainly supergirl and superman) ✙ dandys world ✙ supernatural ✙ percy jackson ✙ fresh ✙ harry potter / fantastic beasts (fuck jk rowling) ✙ political animals ✙ the boys ✙ wolf trilogy ✙ stranger things ✙ south park ✙ my bloody valentine ✙ broadway musicals ✙ DCI / competitive marching band (Holy fuck if u like this PLEASE interact) ✙ rollercoasters / amusement parks (my hyperfix Yayyyayyyy)
+
+
+(꒪ཀ꒪) AC : @/atomikats on tumblr && @/knightouts on tumblr
+
+STAR DIVIDER - @/wallys-left-eyeball on tumblr || LINE DIVIDER - @/chrissiren || PIXELS - @/star4powfu , @/honeyteef , @/pixelsjar , @/goatgutzupon
