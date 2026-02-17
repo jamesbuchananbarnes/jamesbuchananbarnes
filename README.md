@@ -1,1 +1,4 @@
-<img width="200" height="280" alt="IMG_0392" src="https://github.com/user-attachments/assets/8f33f3ca-21ea-4bf7-9fa7-93bc50c3751b" /> ![](https://komarev.com/ghpvc/?username=jamesbuchananbarnes&color=yellow&label=𑁍+new+heroes+𓈒&style=plastic)
+<img width="1360" height="200" alt="image" src="https://github.com/user-attachments/assets/8cfbd290-5306-494a-97f1-dd5a2c3932c6" />
+
+
+　　　　　　　　　　　　　　　　　　　　　　<img width="306" height="275" alt="image" src="https://github.com/user-attachments/assets/f530d7a8-65fd-4511-bd71-5fb938761e0e" />   
