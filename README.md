@@ -3,6 +3,6 @@
 
 ##  ㅤㅤㅤㅤa  name  i  knew  wizards  everywhere  would  one  day  fear  to  speak
 
-![](https://64.media.tumblr.com/9581b9937293ca380b7ac8e143361294/bbb5d3d6d8154d93-7e/s2048x3072/d6271fb6279897b3d8721f32b2fb5e5c989b44f0.pnj)
-
 ## ㅤㅤㅤㅤㅤㅤㅤwhen  i  had  become  the  greatest  sorcerer  in  the  world
+
+![](https://64.media.tumblr.com/9d39924afb10eb515448fec1422fccdc/46e1a7cd882228d7-a7/s1280x1920/4008e09414247b380e12e42cb4be0b03f8da3e5c.pnj)
