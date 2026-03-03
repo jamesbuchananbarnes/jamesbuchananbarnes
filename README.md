@@ -6,3 +6,9 @@
 ## ㅤㅤㅤㅤㅤㅤㅤwhen  i  had  become  the  greatest  sorcerer  in  the  world
 
 ![](https://64.media.tumblr.com/9d39924afb10eb515448fec1422fccdc/46e1a7cd882228d7-a7/s1280x1920/4008e09414247b380e12e42cb4be0b03f8da3e5c.pnj)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ︵︵ㅤㅤㅤ𓈒ㅤㅤㅤchompㅤㅤ![](https://64.media.tumblr.com/a92c940c8b1cee5c1ab98ef89736290e/28d5923266b2008e-e7/s75x75_c1/668b0afde9c5a2bd3e7eb5e445d1577bfca69e74.gifv)ㅤㅤmirrorㅤpronouns
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤᛝㅤㅤ17ㅤㅤ(●´⌓`●)ㅤㅤmexican americanㅤ![](https://cdn.discordapp.com/emojis/1113872257052315749.webp?size=22&quality=lossless) ![](https://cdn.discordapp.com/emojis/1113884131391176734.webp?size=22&quality=lossless) ![](https://cdn.discordapp.com/emojis/1113872847388033164.webp?size=22&quality=lossless)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://64.media.tumblr.com/77da5f689a5376707ae359eed95bdb0f/28d5923266b2008e-70/s75x75_c1/32545c1bf5b8d6f859800b42b0b44157f8bdfa1c.gifv)ㅤㅤselfshipperㅤ𓈒ㅤfictkinㅤ𓈒ㅤwolf kemonomimi
