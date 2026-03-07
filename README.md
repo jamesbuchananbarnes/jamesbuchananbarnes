@@ -16,6 +16,8 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ#1ㅤbucky barnesㅤandㅤnewt scamanderㅤlicker
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[send me a message](https://cavaliers.atabook.org/)ㅤㅤ[extended about me](https://rentry.co/bostoncrusaders)ㅤㅤ[doodle something](https://cavaliers.straw.page/)
+
  ㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤ![](https://media1.tenor.com/m/hmh2kbFbqBgAAAAC/tom-riddle.gif)
  
  ![](https://64.media.tumblr.com/9d39924afb10eb515448fec1422fccdc/46e1a7cd882228d7-a7/s1280x1920/4008e09414247b380e12e42cb4be0b03f8da3e5c.pnj)
