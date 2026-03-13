@@ -13,6 +13,8 @@ im really big into selfshipping its been my hobby for a couple of years now if u
 
 read [this](https://rentry.co/yumesIop) for my interests cus im lowkey lazy and dont wanna type all of that out
 
+[Let me tell you something] whispers: im chomps sussy baka
+
 ![](https://64.media.tumblr.com/9e514865d072c879ae996da9af8e4ccd/4cb5364e99cd10d8-f3/s1280x1920/c99041a45c6edd694948737a65882d0447fcb82e.gifv)
 
 <img width="2048" height="300" alt="image" src="https://github.com/user-attachments/assets/4a12cdb8-885d-41c6-ba1e-3e329d6a76bc" />
