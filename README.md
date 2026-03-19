@@ -1,20 +1,11 @@
 <div align="center">
-<img width="2048" height="300" alt="image" src="https://github.com/user-attachments/assets/dfa7a449-0ab7-4c49-975a-93d9a4b4bd99" />
+<img width="506" height="493" alt="image-removebg-preview (12)" src="https://github.com/user-attachments/assets/2698ff60-09b6-4fd1-802b-4850829245c4" />
+
+  
+  <div align="center">
 
 
-<div align="center">
-<img width="500" height="500" alt="Untitled32_20260309151904" src="https://github.com/user-attachments/assets/216658c1-08ab-4f6a-abf3-80f2fa1759d7" />
 
-<div align="center">
 
-  HEEYYYY im [chomp](https://rentry.co/bostoncrusaders) or lu even tho like no one calls me that anymore thanks for looking at my github~~~ im 17 and i use mirror pronouns (whatever u use u use on me) or they/them works too... im a really fan of bucky barnes hes m alltime fav if u like bucky we should be friends also im a stony and sambucky truther i love thme very much Ok :heart: i usually sit at the superhero / comics area But sometimes im below bakery... very rarely tho :eyes: also i love c+h i get a big fat smile when ppl sit with me 
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/048b8c34-4dbc-4841-85db-3caaa9f38fad" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/1cf2a391-3543-4a47-8dee-7f12be07805b" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/a75f718a-0951-455d-8ba0-4202e39eedcb" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/56713c90-9392-46bf-95f8-70faa2d52fb5" />
 
-im really big into selfshipping its been my hobby for a couple of years now if u dont like this idk just dont mention it to me or try to reality check me cus ik its fictional and i engage in it in an healthy manner :sob: Acting like i killed your dad just cus i like to kiss fictional characters GOODBYE
-
-read [this](https://rentry.co/yumesIop) for my interests cus im lowkey lazy and dont wanna type all of that out
-
-[Let me tell you something] whispers: im chomps sussy baka
-
-![](https://64.media.tumblr.com/9e514865d072c879ae996da9af8e4ccd/4cb5364e99cd10d8-f3/s1280x1920/c99041a45c6edd694948737a65882d0447fcb82e.gifv)
-
-<img width="2048" height="300" alt="image" src="https://github.com/user-attachments/assets/4a12cdb8-885d-41c6-ba1e-3e329d6a76bc" />
