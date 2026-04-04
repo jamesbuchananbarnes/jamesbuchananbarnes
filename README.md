@@ -9,5 +9,8 @@ stucky shippers iwc i dont like most of you and your shitty ass ship 😭🫱
 c+h is fine as well as covering me, and i would prefer ships not to interact unless youre a friend. it makes me uncomfortable ^3^
 
 
+im not seeking penance] Im deleting tou, @jamesbuchananbarnes! 👋 Loading... COMPLETED! @jamesbuchananbarnes has been deleted! ✔ Gone and Forgotten, @jamesbuchananbarnes! 👋🦅
+
+
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/048b8c34-4dbc-4841-85db-3caaa9f38fad" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/1cf2a391-3543-4a47-8dee-7f12be07805b" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/a75f718a-0951-455d-8ba0-4202e39eedcb" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/56713c90-9392-46bf-95f8-70faa2d52fb5" />
 
