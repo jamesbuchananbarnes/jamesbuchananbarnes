@@ -1,4 +1,5 @@
-<p align="center"> <img width="1125" height="800" alt="IMG_0574" src="https://github.com/user-attachments/assets/1575def5-f622-4348-8dcf-e684919d979f" />
+<p align="center"> <img width="498" height="209" alt="IMG_0008" src="https://github.com/user-attachments/assets/a5def273-3fd0-468a-ae36-3ad44c4d6e1d" />
+
 
 <p align="center"> chomp ‎ ^_^)
 
