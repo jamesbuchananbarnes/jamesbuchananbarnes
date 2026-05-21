@@ -6,4 +6,8 @@
 <p align="center">
 #1 bucky fan on the town NO competition 😭😭❌❌❌❌
 
-pro/dark/comship dni, yes this includes if youre just "anti-harrassment" youre in the same boat soneybun
+basic dni and i wont int with u if i dont like u!
+
+goobye remember lucky is canon everypony
+
+<img width="1125" height="807" alt="IMG_0572" src="https://github.com/user-attachments/assets/ed23cce6-f113-4664-abb1-4030aa4c1c81" />
