@@ -8,4 +8,5 @@ c+h is fine, i also dont like ships interacting unless youre a friend, sorry
 
 read rentry for more :o) sign my ata b4 u leave
 
-<img width="1920" height="1920" alt="IMG_0143" src="https://github.com/user-attachments/assets/ea0be89c-810c-4dbd-8eee-02a96b5b8ae2" />
+<img width="500" height="500" alt="IMG_0145" src="https://github.com/user-attachments/assets/deb10c40-f22c-4b41-b7da-00ae424d5923" />
+
