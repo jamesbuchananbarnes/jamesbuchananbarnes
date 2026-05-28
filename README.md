@@ -12,3 +12,5 @@ read rentry for more :o) sign my ata b4 u leave
 
 
 <img width="1266" height="585" alt="IMG_0148" src="https://github.com/user-attachments/assets/995ea17f-817e-4961-80f4-02f0dd2b8735" />
+
+<img width="1266" height="585" alt="IMG_0149" src="https://github.com/user-attachments/assets/64f54f1d-8bea-4fe9-a770-eab90d7c851c" />
