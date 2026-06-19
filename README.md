@@ -1,6 +1,6 @@
-<img width="540" height="540" alt="9B1A9F8A-9850-46A7-92A6-6E7E6166288F" src="https://github.com/user-attachments/assets/1766e7ff-7474-45d1-89a9-8cfd03f11cea" />
+<img width="1170" height="568" alt="Untitled13_20260618195805" src="https://github.com/user-attachments/assets/2b528d8a-4fd4-45cd-a0c3-4f058f51db41" />
 
-
-blocking proshippers/darkshippers is my favorite hobby! dont try to interact with me unless u wanna be made fun of 👎
-
-the real bobette carolynne @title-town 🐺
+<p align="center">
+buckybarnespilled selfshipmaxxing 🐺
+c+h and w2i freely
+https://rentry.co/projecthaiImary
