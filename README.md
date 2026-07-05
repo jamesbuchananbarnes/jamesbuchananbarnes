@@ -7,3 +7,5 @@
 buckybarnespilled selfshipmaxxing 🐺
 c+h and w2i freely
 https://rentry.co/projecthaiImary
+
+[henry] Chomp if she was written by vivziepop: Im going to FUCK bucky in the FUCKING ASS
